@@ -23,7 +23,7 @@
 
 ## 📫 How to Reach Me  
 📩 WhatsApp: [Click to chat](https://wa.me/254700861129?text=Hey%20Einzelgaanger%2C%20let%27s%20connect!)  
-📧 Email: [binfred.ke](mailto:binfred.ke@example.com)
+📧 Email: [binfred.ke](mailto:binfred.ke@gmail.com)
 
 ## 😄 Pronouns  
 He/Him  
