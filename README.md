@@ -1,4 +1,4 @@
-# 👋 Hi, I’m @Einzelgaanger  
+# 👋 Hi, I’m Einzelgänger 
 
 🚀 Passionate about turning data into powerful insights and building solutions that make an impact.  
 
